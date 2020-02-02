@@ -1,2 +1,0 @@
-# Santh-Prasad
-technology
